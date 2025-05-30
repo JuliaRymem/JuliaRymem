@@ -5,4 +5,4 @@
 ⚛️ Most passionate about working with React and design systems  
 🤝 Open to collaborations and internship opportunities  
 📬 Reach me at: [juliakrasmusson@hotmail.com]  
-🌍 Fun fact: I love running, coding, and sipping sparkling wine 🍾👟💻
+🌍 Fun fact: I love running, coding and sipping sparkling wine 🍾👟💻
